@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil do Jonatan-Alves 😁
+## Bem-vindo(a) ao perfil do Jonatan-Alves 
 
  <div>
    <a href="https://github.com/Jonatan-Alves">
